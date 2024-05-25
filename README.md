@@ -1,5 +1,5 @@
 # 💫 About Me:
-◌Systems Engineering Student VII😊<br>◌Database Management Technologist-🖱️<br>◌Computer Equipment Maintenance Technician😎<br>◌Seedbed in development of visual .net 💻
+◌Systems Engineering Student 😊<br>◌Database Management Technologist-🖱️<br>◌Computer Equipment Maintenance Technician😎<br>◌Seedbed in development of visual .net 💻
 
 
 ## 🌐 Socials:
